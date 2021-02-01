@@ -4,7 +4,7 @@ See discourse link [here, regarding blade envelopes](https://discourse.equadratu
 
 # YouTube Video
 
-
+https://www.youtube.com/watch?v=SmGCCoMWJxU
 
 # Files
 
